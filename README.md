@@ -1,17 +1,23 @@
-Inpira 2025 Talent Show 🎤✨
+✨ Inpira 2025 Talent Show ✨
 
-Organized by the English Speech Club
+Organized by the English Speech Club 🎤
 
-About the Event
+🌟 About the Event
 
-The Inpira 2025 Talent Show is a celebration of creativity, talent, and self-expression! Performers of all kinds — singers, dancers, comedians, poets, magicians, and more — are welcome to take the stage. This is a friendly, inclusive, and fun event with no judging, where everyone can share their passion and enjoy the performances together.
+The Inpira 2025 Talent Show is a celebration of creativity, talent, and self-expression!
 
-Contact Information
+Whether you sing, dance, perform magic, tell jokes, or recite poetry, this is your stage to shine.
 
-For questions or inquiries, contact the English Speech Club:
+This is a fun, inclusive, and judgment-free event, where everyone can enjoy amazing performances and support each other’s passion.
 
-Email: talentshow@inpira.org
+📬 Contact Information
 
-Phone: +1 (555) 123-4567
+Have questions? Reach out to the English Speech Club:
 
-Social Media: @InpiraTalentShow
+Email: 
+
+Phone: 
+
+Social Media: 
+
+✨ Celebrate talent. Share your passion. Make memories! ✨
